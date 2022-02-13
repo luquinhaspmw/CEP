@@ -1,2 +1,1 @@
-### CEP
-![CEP](https://user-images.githubusercontent.com/77653635/153733042-5d4ff2b8-9a4d-4e35-9fc7-106061c03219.png)
+<img align=center>![CEP (1)](https://user-images.githubusercontent.com/77653635/153733173-2b5f7164-0ecd-44ef-a128-3e4572268e27.png)</img>
